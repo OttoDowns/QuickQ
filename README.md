@@ -1,4 +1,4 @@
-**QuickQ官方网站电脑版下载 QuickQ客户端下载 QuickQ下载 快客加速器 免费下载 科学上网 VPN下载 翻墙梯子**
+**QuickQ官方网站电脑版下载**
 
 <sup>新用户免费试用！一个账号3台设备同时使用，超千台节点，不限流量，超强隐私保护。支持 Android / iOS / Windows / Mac / Ubuntu。7x15在线服务，保障服务可用性</sup>
 
